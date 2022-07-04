@@ -1,1 +1,1 @@
-# Some of the important awards
+# Awards
